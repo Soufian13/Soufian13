@@ -1,9 +1,9 @@
 Notizen und Projektübersicht
 
 Aktuelle Timeline:
---> viele verschiedene Quellen lesen und Ideen und Theorien sammeln
---> Mitte August die Arbeit anmelden
---> 02.09 bis 27.10 die Arbeit schreiben
+- viele verschiedene Quellen lesen und Ideen und Theorien sammeln
+- Mitte August die Arbeit anmelden
+- 02.09 bis 27.10 die Arbeit schreiben
 
 
 
