@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/f6348cf5-22db-4f13-865b-a3e3b2ff274b)Notizen und Projektübersicht
+Notizen und Projektübersicht
 
 Aktuelle Timeline:
 - viele verschiedene Quellen lesen und Ideen und Theorien sammeln
