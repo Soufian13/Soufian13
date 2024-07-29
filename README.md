@@ -1,4 +1,4 @@
-Notizen und Projektübersicht
+![image](https://github.com/user-attachments/assets/f6348cf5-22db-4f13-865b-a3e3b2ff274b)Notizen und Projektübersicht
 
 Aktuelle Timeline:
 - viele verschiedene Quellen lesen und Ideen und Theorien sammeln
@@ -6,8 +6,11 @@ Aktuelle Timeline:
 - 02.09 bis 27.10 die Arbeit schreiben
 
 
-
-
+Eine Diskussion der technologischen Möglichkeiten funktioniert nur, wenn du ein solides Fundament hinsichtlich Themen, wie:
+- kulturell geprägte Denkstrukturen
+- konkreter Wert von Bildung und 
+- aktuelle Sozialstrukturen in migrantisch geprägten Milieus
+Erarbeitest.
 
 
 Notizen aus dem letzten Meeting:
